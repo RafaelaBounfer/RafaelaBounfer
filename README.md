@@ -1,0 +1,3 @@
+- 🎍 I'm here to learn and be able to better develop my skills.
+- 🌟 I'm a beginner, but I'm very curious and I'm willing to train in the best way I can.
+- 🍀 I am willing to receive tips and advice in a kind way, mutual respect is important.
